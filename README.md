@@ -1,5 +1,5 @@
 czxczasx2ca- 👋 Hi, I’m @maratmuraev1sadxzc979
-- 👀 I’m zxczxcinterested ixcbfdvcvvn ...
+- 👀 I’m zxczxcinterestedasdzvcxv ixcbfdvcvvn ...
 - 🌱 I’m currently lecarning ...cas
 - 💞️ I’m lookbcving tobgd colasflabosrate on ...vvkj
 - 📫 How to reasfdch me ...adfczxcvbacxzccv
