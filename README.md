@@ -1,6 +1,5 @@
 czxczasx2ca- 👋 Hi, I’m івафіва@maratmuraev1sdfsdfsdfdsfsdasxdfgfgdxdzadxzc979мячсмячсм
-- 👀 I’m zxczxcinterestedasdzvcxv ixcsxzcbfdvcvvn ...
-- 🌱 I’m currently lecarning ...cas
+- 👀 I’m zxczxcinterestedasdzvcxv ixcsxzcjgf
 - 💞️ I’m lookbcving tobgd colasfsadlabosrate on ...vvkjcxvxcvxcv
 - 📫 How to reazxvdsfdch me ...adfczxcasvfvccvbacxzccv
 xzcxzcdsffdsadzіваівамсчмсчваіваіxv
