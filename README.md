@@ -1,4 +1,4 @@
-czxczasx2ca- 👋 Hi, I’m івафіва@maratmuraev1sdfsdfsdfdsfsdasxdfgfgdxdzadxzc979мячсмячсм
+czxczasx2ca- 👋 Hi, I’m івафіва@maratmuraev1sdfsdfsdfdsfsdasxdfgfgdxdz,mnadxzc979мячсмячсм
 - 👀 I’m zxczxcinterestedasdzvcxv ixcsxzcjgf
 - 💞️ I’m lookbcving tobgd colasfsadlabosrate on ...vvkjcxvxcvxcv
 - 📫 How to reazxvdsfdch me ...adfczxcasvfvccvbacxzccv
